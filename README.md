@@ -7,6 +7,8 @@
 
 - 📫 How to reach me **diego.garcia.pinaud@gmail.com**
 
+- 📄 Know about my experiences [www.linkedin.com/in/diego-andrés-garcía-pinaud-2b8815260](www.linkedin.com/in/diego-andrés-garcía-pinaud-2b8815260)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
